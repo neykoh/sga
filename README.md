@@ -1,0 +1,1 @@
+aplicacione_escoprol
